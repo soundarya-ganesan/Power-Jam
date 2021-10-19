@@ -1,1 +1,1 @@
-# Power-Jam
+# Power Jam
